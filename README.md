@@ -1,1 +1,1 @@
-# B-i-t-p-l-n-AI
+# Bài tập lớn môn Nhập môn trí tuệ nhân tạo 
